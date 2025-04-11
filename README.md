@@ -1,1 +1,1 @@
-Ammattikoulu aikoina tehtyjä tehtäviä
+Ammattikouluaikoina tehtyjä tehtäviä
